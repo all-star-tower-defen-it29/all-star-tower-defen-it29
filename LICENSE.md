@@ -1,4 +1,4 @@
-
+bedwars Script smart auto-collect auto-heal offers the most advanced bedwars Script, with auto-collect and auto-heal. Perfect for dominating any
 
 
 ---
